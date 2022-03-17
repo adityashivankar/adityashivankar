@@ -5,7 +5,7 @@
 - 📫 Feel free to reach me on ashivank@stevens.edu
 > Know more about my experiences
 
-  https://drive.google.com/file/d/1n5slKFK_VAucxjtxtiKr14s22YDrxKNK/view?usp=sharing
+  https://drive.google.com/file/d/1J_IpiRTYU3FOSr0xMgcNtDap6QDpXfRo/view?usp=sharing
   
   Connect with me on:
   
